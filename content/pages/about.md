@@ -1,16 +1,13 @@
 ---
 title: "About"
 summary: " "
-date: 2024-01-15T12:25:00-05:00
+date: 2025-03-22T12:25:00-05:00
 # tags: ["page", "about"]
 ---
 
 <p>
-We continue down our Bucket list, this time we are heading to Japan!
-
-During our 3 weeks of exploring we hope to hit most of the main spots close to Tokyo, Kyoto and Osaka. 
-  
-<p>  
+Once again heading to Japan! 
+This time we are bringing Wilma and Julia along to celebrate Wilma's graduation!
+</p>  
  
-Cheers!
-Mala & Mange 
+
