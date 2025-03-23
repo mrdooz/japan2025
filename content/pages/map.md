@@ -221,155 +221,65 @@ A great way to somber up after all this is to climb the [Orizuru Tower](https://
  
 ### Miyajima Island
 
-https://www.japan-guide.com/e/e3401.html
-
+Just outside Hiroshima is [Miyajima Island](https://www.japan-guide.com/e/e3401.html). Here you'll find the [Itsukushima Shrine](https://www.japan-guide.com/e/e3450.html) with it's floating torii gate. The island is also home to [Mount Misen](https://www.japan-guide.com/e/e3451.html), a 500 meter high peak which you can reach by either a long exhausting hike or by riding the Cable Car, guess which one we  will choose!  
+To help with all the logistics we secured Ken as our guide for the day via (Get Your Guide)[https://www.getyourguide.com/hiroshima-l32662/hiroshima-private-half-day-miyajima-tour-t387185/].
 </div>
 
-<!-- Tuesday, April 2, 2024 -->
-<div style="float:none;min-height:350px">
 
-## Tuesday, April 2, 2024
 
-<a href="https://maps.app.goo.gl/otDKswHUkQikhZZUA" target=_blank>
-  <img class="picture-float" src="../apr2.jpg" alt="Route of the day" style="height:150px">
-</a>
 
+
+<!-- Monday, April 21, 2025 -->
+<div style="float:none;min-height:150px">
+
+## Monday, April 21, 2025
  
-### Kobe & Hime-ji castle
+### Back to Tokyo we go
 
-- Kobe and Hime-ji castle
-  - On today's agenda is visiting Kobe, and eating lots of beef! Woohoo!
-  - And maybe a visit to [Hime-ji Castle](https://www.japan-guide.com/e/e3501.html), depending on how much beef we eat :)
+We are nearing the end of our trip so it's time to get back to Tokyo. The Shinkansen will take us there in just 4 hours (10 hours by car). 
+Sine we'll be staying in another part of Tokyo this time we'll spend the evening exploring the local area and finding some dinner! 
+
+- Hotel: [Palace Hotel Tokyo](https://en.palacehoteltokyo.com/)
+  - Apr 21-23
+</div>
+
+
+<!-- Tuesday, April 22, 2025 -->
+<div style="float:none;min-height:150px">
+
+## Tuesday, April 22, 2025
+
+
+### Our Final day
+
+Noooo, we have reached the final day in Japan (atleast for this time).<br><br>
+We'll leave the agenda open for the day so that we have room for some last minute gift shopping.<br><br>
+If we don't need to spend the whole day shopping we can head to the [Yokohama English Garden](https://trip.pref.kanagawa.jp/destination/yokohama-english-garden/1440) for some TikTok opportunities, unfortunately we might be to early for the roses to bloom. 
+And, unless we managed to fit it in during the first 3 days in Tokyo, let's make sure we book a treatment at [Rabbicour](https://rabbicour.com/)
+<br><br>
+We're also staying right next to the Imperial Palace and it's amazing gardens so we can always go out for a stroll.
 
 </div>
 
-<!-- Wednesday, April 3, 2024 -->
+
+<!-- Wedneday, April 23, 2025 -->
 <div style="float:none;min-height:350px">
 
-## Wednesday, April 3, 2024
-
-<a href="https://maps.app.goo.gl/yamji2msbUPskRoc9" target=_blank>
-  <img class="picture-float" src="../apr3.jpg" alt="Route of the day" style="height:120px">
-</a>
-
- 
-### Osaka & Lake Hamana
-
-- Aquarium and driving to Lake Hamana
-  - Osaka has one of the world's largest aquariums [Osaka Aquarium](https://www.kaiyukan.com/language/eng/), so we'll try to check that out. Maybe we can find one of Malin's lost relatives!
-  - After this, we're going to be driving out to Lake Hamana, where we've found a relaxing [ryokan](https://hoshinoresorts.com/en/hotels/kaienshu/) (a traditional Japanese inn), where we'll be spending the night. They had two meal alternatives, the Western option, and the traditional option, consisting of eels and pufferfish! (ok, we chickened out, and got the Western option).
-- Hotel: [Hoshino resorts KAI Enshu](https://hoshinoresorts.com/en/hotels/kaienshu/)
-  - Apr 3-4
-
-</div>
+## Wednesday, April 23, 2025
 
 
-<!-- Thursday, April 4, 2024 -->
-<div style="float:none;min-height:350px">
+### Airport time
 
-## Thursday, April 4, 2024
+Time to say good bye to Japan for this time and we hope that Wilma & Julia had the trip of their dreams! Our flights leave approximately the same time so we will all head to the airport together in the morning. 
 
-<a href="https://maps.app.goo.gl/tfJ7nWjTjKP5DqPW8" target=_blank>
-  <img class="picture-float" src="../apr4.jpg" alt="Route of the day" style="height:150px">
-</a>
 
-### Lake Hamana to Hakone
+- Flight: JL 6, HND - JFK
+  - 11:05am - 11:00am, 12h 55m     
 
-- More ryokan chilling!
-  - We're making out way back to Tokyo, but first we'll going to take a couple of days to relax a little at a [ryokan](https://kinnotake-resorts.com/) near Mt Fuji. 
-- Hotel: [Kinnotake Tonosawa](https://kinnotake-resorts.com/kinnotake-tonosawa/)
-  - Apr 4-6
-</div>
 
-<!-- Friday, April 5, 2024 -->
-<div style="float:none;min-height:350px">
-
-## Friday, April 5, 2024
-
- 
-### Hakone
-
-- Ropeways and museum
-  - The play for today is take a ride on the [Hakone Ropeway](https://www.hakonenavi.jp/international/en/transportation/hakone-ropeway), and the [Hakone Open Air Museum](https://www.hakone-oam.or.jp/en/).
-
+- Flight: SK 984, HND-CPH
+  - 11:35pm - 6:10pm, 13h 35m  
+- Flight: SK 1444, CPH-GOT
+  - 7:15pm - 8:00pm, 45m
 
 </div>
-
-<!-- Saturday, April 6, 2024 -->
-<div style="float:none;min-height:350px">
-
-## Saturday, April 6, 2024
-
-<a href="https://maps.app.goo.gl/NDNBtYka5Vjh9h1dA" target=_blank>
-  <img class="picture-float" src="../apr6.jpg" alt="Route of the day" style="height:250px">
-</a>
-
- 
-### Hakone to Tokyo
-
-
-- Heading back to Tokyo, and ninjas!
-  - Today we're driving back to Tokyo for round two. Dinner will be pretty exciting at the [Ninja Tokyo Restaurant](https://www.ninja-tokyo.jp/home/home-en/).
-- Hotel: [Conrad Tokyo](https://www.hilton.com/en/hotels/tyocici-conrad-tokyo/)
-  - Apr 6-9
-
-</div>
-
-<!-- Sunday, April 7, 2024 -->
-<div style="float:none;min-height:350px">
-
-## Sunday, April 7, 2024
-
-<img class="picture-float" src="../apr7.jpg" alt="Route of the day" style="height:250px">
-
- 
-### Tokyo
-
-
-- Imperial Gardens and Palace
-  - We're winding down a little now, and checking out the [Imperial Palace](https://www.japan-guide.com/e/e3017.html).
-
-</div>
-
-<!-- Monday, April 8, 2024 -->
-<div style="float:none;min-height:350px">
-
-## Monday, April 8, 2024
-
-<img class="picture-float" src="../apr8.jpg" alt="Route of the day" style="height:250px">
-
- 
-### Tokyo
-
-- Shopping!
-  - We've gotten some requests for thing to buy people in Sweden, so today we're going to be heading off to the Hello Kitty megastore to see what we can find :)
-
-</div>
-
-<!-- Tuesday, April 9, 2024 -->
-<div style="float:none;min-height:350px">
-
-## Tuesday, April 9, 2024
-
-<a href="https://maps.app.goo.gl/MqHyqfURhUk7wZif6" target=_blank>
-  <img class="picture-float" src="../apr9.jpg" alt="Route of the day" style="height:200px">
-</a>
-
- 
-### Tokyo to New York
-
-- Teamlabs, and flying home :(
-  - Our last day in Japan. In the morning we're going to check out the [teamLab Planets Exhibition](https://www.teamlab.art/e/planets/), and then make our way towards the airport for the flight back home.
-
-</div>
-
-
-
-
-
-
-
-
-
-
-
