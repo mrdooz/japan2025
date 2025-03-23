@@ -6,7 +6,7 @@ date: 2025-03-22T12:25:00-05:00
 ---
 
 <p>
-Once again heading to Japan! 
+Once again we are heading to Japan! 
 This time we are bringing Wilma and Julia along to celebrate Wilma's graduation!
 </p>  
  
