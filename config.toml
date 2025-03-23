@@ -1,0 +1,35 @@
+baseurl = "https://japan2025.brosterlind.com/"
+# If you use "hugo server" you might want to use this entry:
+#baseurl = "http://localhost:1313/"
+title = "The Thrilling Adventures of"
+#copyright = "&copy; Lorem ipsum ... and so on ..."
+
+#googleAnalytics = "G-G8CDPGGBNE"
+
+theme = "hamburg"
+
+[menu]
+
+	[[menu.main]]
+		name = "Travel Plan"
+		identifier = "route"
+		url = "pages/map"
+	[[menu.main]]
+		name = "About"
+		identifier = "about"
+		url = "pages/about"
+	[[menu.main]]
+		name = "Hotels"
+		identifier = "hotels"
+		url = "pages/hotels"
+
+
+[params]
+	subtitle = " Mala & Mange featuring Wilma & Julia in Japan!"
+	image = "/images/japan2025.jpeg"
+	mainSections = ["posts"]
+	dateInSummary = false
+
+[markup.goldmark.renderer]
+unsafe= true
+
