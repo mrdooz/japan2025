@@ -90,9 +90,9 @@ After lunch we'll visit [Takeshita Dori](https://tokyocheapo.com/entertainment/h
  
 ### Views, Culture & Street Food
 
-We start the day with some amazing Tokyo views from the viewing decks at the [Tokyo Skytree](https://www.tokyo-skytree.jp/en/)! If the weather is good we'll also catch a glimps of Mount Fuji in the distance.<br><br>
+We start the day with some amazing Tokyo views from the viewing decks at the [Tokyo Skytree](https://www.tokyo-skytree.jp/en/)! If the weather is good we'll also catch a glimpse of Mount Fuji in the distance.<br><br>
 Next we walk over to [Nakamise Street](https://www.asakusastation.com/nakamise-shopping-street-asakusa/) and the [Senso-Ji Temple](https://www.japan-guide.com/e/e3001.html). The area is full of street food vendors as well as small restaurants so we'll catch some lunch while walking around taking in the atmosphere.<br><br>
-If the cherry trees are still blooming we also must visit Sumida Park along the river and fight the crowdes for some cherry blossom photos!<br><br>
+If the cherry trees are still blooming we also must visit Sumida Park along the river and fight the crowds for some cherry blossom photos!<br><br>
 If we feel lucky we might also try our luck on some [Crane games](https://www.bokksu.com/blogs/news/mastering-the-claw-exploring-japan-s-crane-game-culture) or some [Pachinko](https://en.wikipedia.org/wiki/pachinko?variant=zh-cn#:~:text=Pachinko%20parlors%20are%20widespread%20in,both%20mechanical%20and%20electrical%20components), if we are out of luck we can always try a [Gashapon (capsule machine)](https://en.wikipedia.org/wiki/Gashapon) for some useless but guaranteed loot!
 
 </div>
@@ -122,9 +122,9 @@ If we want more we will head to [Tokyo Character Street](https://trulytokyo.com/
 ### Bullet train to Kyoto 
 
 It's time to pack our bags and head to our next stop, Kyoto!<br>
-[Shinkansen](https://en.wikipedia.org/wiki/Shinkansen), the famous Japaneese high speed bullet train will take us there in just over 2 hours!<br>
+[Shinkansen](https://en.wikipedia.org/wiki/Shinkansen), the famous Japanese high speed bullet train will take us there in just over 2 hours!<br>
 We'll be staying at the outskirts of Kyoto and hopefully our rooms will have private [onsen bath](https://en.wikipedia.org/wiki/Onsen).<br>   
-The hotel is also next to the [Tenryu-ji Temple](https://www.insidekyoto.com/tenryu-ji-temple-arashiyama), the [Arashiyama Bamboo Grove](https://www.insidekyoto.com/arashiyama-bamboo-grove) and the [Okochi-Sanso Villa](https://www.insidekyoto.com/okochi-sanso-villa-arashiyama) so we'll spend the afternoon in the local area until it's time to head into central Kyoto for our evneing [Food Tour](https://www.viator.com/tours/Kyoto/Kyoto-Night-Foodie-Tour/d332-63670P6).
+The hotel is also next to the [Tenryu-ji Temple](https://www.insidekyoto.com/tenryu-ji-temple-arashiyama), the [Arashiyama Bamboo Grove](https://www.insidekyoto.com/arashiyama-bamboo-grove) and the [Okochi-Sanso Villa](https://www.insidekyoto.com/okochi-sanso-villa-arashiyama) so we'll spend the afternoon in the local area until it's time to head into central Kyoto for our evening [Food Tour](https://www.viator.com/tours/Kyoto/Kyoto-Night-Foodie-Tour/d332-63670P6).
 
 - Hotel: [Suiran A Luxury Collection Hotel](https://www.marriott.com/en-us/hotels/ukylc-suiran-a-luxury-collection-hotel-kyoto/overview/)
   - Apr 14-17
@@ -141,8 +141,8 @@ The hotel is also next to the [Tenryu-ji Temple](https://www.insidekyoto.com/ten
 ### Kimonos & Temple
 
 Time to explore Kyoto!
-We'll start at the [Kiyomizu-dera Temple](https://www.insidekyoto.com/kiyomizu-dera-temple), an imnpressive temple offering fabulous views over the city.
-We'll stroll bac down via [Sannenzaka and Ninenzaka](https://livejapan.com/en/in-kansai/in-pref-kyoto/in-gion_kawaramachi_kiyomizu-dera-temple/article-a2000498/), we'll for sure take some geat photos with the [Hokan-ju Temple](https://kyoto.travel/en/shrine_temple/155.html) in the background.<br>
+We'll start at the [Kiyomizu-dera Temple](https://www.insidekyoto.com/kiyomizu-dera-temple), an impressive temple offering fabulous views over the city.
+We'll stroll bac down via [Sannenzaka and Ninenzaka](https://livejapan.com/en/in-kansai/in-pref-kyoto/in-gion_kawaramachi_kiyomizu-dera-temple/article-a2000498/), we'll for sure take some great photos with the [Hokan-ju Temple](https://kyoto.travel/en/shrine_temple/155.html) in the background.<br>
 If we want more temples/parks we can always visit the [Chion-in Temple](https://www.insidekyoto.com/chion-in-temple) but most likely we'll head towards  [Nishiki Market](https://www.insidekyoto.com/nishiki-market-downtown-kyoto).<br>
 For dinner we'll head to [BuonAgio](https://www.buonagio-kyoto.com/) for a teppanyaki dinner!
 
@@ -177,7 +177,7 @@ To avoid renting a car we booked a [tour](https://www.viator.com/tours/Kyoto/Kyo
 
 Off to the next city, this time we'll hop on a train and travel 30 min south to Osaka.
 Once the bags are dropped at the hotel we'll head towards [Shinsaibashi-suji Shopping Arcade](https://insideosaka.com/shinsaibashi-suji-shopping-arcade/) and [Dotonbori](https://www.japan.travel/en/spot/2207/). We'll also do some car window-shopping along [Midosuji](https://insideosaka.com/midosuji/). How about a Ferrari, Lamborghini or McLaren?
-There are so many restaurants and food stalls in the Dotonbori area so you dont really know where to eat so to make it east we booked an evening [food tour](https://www.viator.com/tours/Osaka/Evening-Food-Tour-of-Osaka/d333-31383P13).
+There are so many restaurants and food stalls in the Dotonbori area so you don't really know where to eat so to make it east we booked an evening [food tour](https://www.viator.com/tours/Osaka/Evening-Food-Tour-of-Osaka/d333-31383P13).
 
 
 - Hotel: [W Osaka](https://www.marriott.com/en-us/hotels/osaow-w-osaka/overview/?scid=f2ae0541-1279-4f24-b197-a979c79310b0)
@@ -252,7 +252,7 @@ Sine we'll be staying in another part of Tokyo this time we'll spend the evening
 
 ### Our Final day
 
-Noooo, we have reached the final day in Japan (atleast for this time).<br><br>
+Noooo, we have reached the final day in Japan (at least for this time).<br><br>
 We'll leave the agenda open for the day so that we have room for some last minute gift shopping.<br><br>
 If we don't need to spend the whole day shopping we can head to the [Yokohama English Garden](https://trip.pref.kanagawa.jp/destination/yokohama-english-garden/1440) for some TikTok opportunities, unfortunately we might be to early for the roses to bloom. 
 And, unless we managed to fit it in during the first 3 days in Tokyo, let's make sure we book a treatment at [Rabbicour](https://rabbicour.com/)
@@ -262,7 +262,7 @@ We're also staying right next to the Imperial Palace and it's amazing gardens so
 </div>
 
 
-<!-- Wedneday, April 23, 2025 -->
+<!-- Wednesday, April 23, 2025 -->
 <div style="float:none;min-height:350px">
 
 ## Wednesday, April 23, 2025
