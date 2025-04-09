@@ -4,7 +4,7 @@ date: 2025-04-09T21:35:06+09:00
 noshowdate: true
 summary: "In the air"
 tags: ["post"]
-images: ["/posts/04102025/takeoff.jpg"]
+images: ["/posts/04092025/takeoff.jpg"]
 ---
 
 
