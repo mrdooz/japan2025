@@ -1,10 +1,10 @@
 ---
 title: "Kyoto time"
-date: 2025-04-13T20:02:06+09:00
+date: 2025-04-14T21:22:06+09:00
 noshowdate: true
 summary: "Shinkansen"
 tags: ["post"]
-images: ["/posts/04132025/lunch.jpg"]
+images: ["/posts/04142025/t0.jpg"]
 ---
 
 
