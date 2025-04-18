@@ -82,6 +82,6 @@ We then stopped for Kushikatsu (tempura skewers) before ending the tour with des
 </div>
 </div>
 <div style="display:flex; justify-content: center; flex-wrap: wrap">
-{{< imgScale "fried.jpg" "" "200x" >}}
+{{< imgScale "foodtour2.jpg" "" "200x" >}}
 {{< imgScale "fish.jpg" "" "200x" >}}
 </div>
