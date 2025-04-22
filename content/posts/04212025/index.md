@@ -1,6 +1,6 @@
 ---
 title: "Back to Tokyo"
-date: 2025-04-20T18:08:06+09:00
+date: 2025-04-21T18:08:06+09:00
 noshowdate: true
 summary: "Train day"
 tags: ["post"]
